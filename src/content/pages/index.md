@@ -1,12 +1,15 @@
 ---
 template: index-page
 slug: /
-title: Wyatt Morriss
-tagline: Graphic Designer
+title: Aneesh Mittal
+tagline: Designer (of random stuff)
 featuredImage: /assets/toa-heftiba-0rlfirsdvzu-unsplash.jpg
 cta:
-  ctaText: Know more
+  ctaText: Know More..
   ctaLink: /about
 ---
+I design all kinds of random stuff. Mainly Graphics and Web, along with Apps, Furniture, Motorcycles, Gadgets...
 
-He is a award winning gaming graphic designer, based in sunny side of California. Working as Principal designer at Bethesda
+I believe in Minimalism. I know that's very vague. No minimalism in writing though.
+
+Motorcycle travel is the real life, rest is just preparing.
