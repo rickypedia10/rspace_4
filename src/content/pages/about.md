@@ -1,8 +1,11 @@
 ---
 template: about-page
 slug: /about
-title: About Foundation
+title: About Aneesh Mittal
 ---
+
+Maybe, just maybe, OK definitely, I don't have that much to write.
+Or, just deploying this website and figuring it our has made me tired and I have no more energy to think.
 
 Thank you! Now say "nuclear wessels"! No! Don't jump! A sexy mistake. Anyone who laughs is a communist!
 
