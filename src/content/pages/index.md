@@ -2,13 +2,13 @@
 template: index-page
 slug: /
 title: Aneesh Mittal
-tagline: Designer (of random stuff)
-featuredImage: /assets/toa-heftiba-0rlfirsdvzu-unsplash.jpg
+tagline: Designer
+featuredImage: /assets/wallpatterny.png
 cta:
   ctaText: Know More..
   ctaLink: /about
 ---
-I design all kinds of random stuff. Mainly Graphics and Web, along with Apps, Furniture, Motorcycles, Gadgets...
+I design all kinds of random stuff. Mainly Graphics and Web, along with Apps, Motorcycles, Gadgets...
 
 I believe in Minimalism. I know that's very vague. No minimalism in writing though.
 
