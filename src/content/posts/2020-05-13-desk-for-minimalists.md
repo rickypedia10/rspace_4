@@ -4,7 +4,7 @@ title: Edited - Desk for minimalists
 slug: /desk
 date: 2022-05-13 12:46
 description: sdasd
-featuredImage: /assets/wall patternr.jpg
+featuredImage: /assets/wallpatternr.png
 ---
 
 Does this work? DOES THIS WORK!!!!?
@@ -15,7 +15,7 @@ Does this work? DOES THIS WORK!!!!?
 
 That's the ONLY thing about being a slave. OK, if everyone's finished being stupid. Bender, we're trying our best. Fry! Stay back! He's too powerful! I just told you! **You've killed me!** _And yet you haven't said what I told you to say!_ How can any of us trust you?
 
-![Royal Mail](/assets/wall patternb.jpg "Royal Mail from Unsplash")
+![Royal Mail](/assets/wallpatternb.png "Royal Mail from Unsplash")
 
 ## It doesn't look so shiny to me.
 
