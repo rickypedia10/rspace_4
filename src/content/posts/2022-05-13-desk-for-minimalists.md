@@ -2,7 +2,7 @@
 template: blog-post
 title: Edited - Desk for minimalists
 slug: /desk
-date: 2022-05-13 12:46
+date: 2022-07-23 13:13
 description: sdasd
 featuredImage: /assets/wallpatternr.png
 ---
