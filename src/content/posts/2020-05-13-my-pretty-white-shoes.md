@@ -1,10 +1,11 @@
 ---
 template: blog-post
-title: Extreme gaming extravaganza
-slug: /gaming-extravaganza
-date: 2022-07-24 13:12
-description: How we scaled an Extreme gaming extravaganza
-featuredImage: /assets/wallpatterny.png
+title: NEWS! New Launch! Sunday Morning Motorcycle Travel Newsletter!
+slug: /sunday-newsletter-motorcycle
+date: 2022-08-07 18:48
+description: motorcycle, travel, newsletter
+featuredImage: ""
 ---
+I scour the deep depths of Travel-internet so you do not have to! Sit back and enjoy my weekly favourite articles, news, reviews, blog posts, videos, social media posts, and much more!
 
-LolJKWTF
+Click [here ](https://rickypediaspace.mailchimpsites.com/)(link opens in new tab) and subscribe to receive latest news directly into your inbox.
