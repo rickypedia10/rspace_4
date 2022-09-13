@@ -6,62 +6,47 @@ date: 2022-09-07 11:18
 description: himalayas, travel, motorcycle, adventure
 featuredImage: /assets/20220628_090014~2.jpg
 ---
-Day 1\
-The butterflies in my stomach when I left were crazy. I was so nervous i was looking for (and did find) excuses not to leave the comfort of home. Boy am I glad that I did. It's nice. Really nice. Riding on the highway in the plains felt boring. But once I reached the mountains, it was fun.\
-Too many Hindu tourists around Chintpurni. And Dalhousie is full of people too. Good for the local economy, but for me it's meh. Found an excellent Homestay a little further from DAL. Good choice. Nice and clean and up in the fresh mountain air.\
+The butterflies in my stomach when I left were crazy. I was so nervous I was looking for (and did find) excuses not to leave the comfort of home. Boy am I glad that I did. It's nice. Really nice. Riding on the highway in the plains felt boring. But once I reached the mountains, it was fun.\
 \
-\
-Day 2\
 Thanks to some recommendations from fellow ADVers down south!\
-I went upto Salooni and then turned towards J&K. Really nice route and finally found some off road that I was looking for. Being so densely populated, plus the army presence, most roads are well developed. Finding off road routes is much more difficult in India than I could have imagined. I was expecting more, but traveling is about acceptance, not expectations.\
+I went upto Salooni and then turned towards J&K. Really nice route and finally found some off road that I was looking for. Being so densely populated, plus the army presence, most roads are well developed. Finding off road routes is much more difficult in India than I could have imagined. I was expecting more, but traveling is about acceptance, not expectations.
+
+![Salooni - Kishtewar, J&K](/assets/pic1.jpg "Salooni - Kishtewar, J&K")
+
 \
-Some views reminded me of similar locations in Peru and Bolivia.\
+Some views reminded me of similar locations in Peru and Bolivia.
+
+Day 3, I rode to Killar. Started at 6.30 am! (Early morning rides are THE BEST!)\
+This is why I came here. Beautiful scenery and good off roading. Nothing too difficult, even buses and local cars pass here, nonetheless very exciting.
+
+Killar is... Desolate? Small empty town high up the mountains. In the day was too hot , and the sun is strong here. Everything's closed. No fuel stations up here. (Reminds me of Bolivia) Beautiful mountains.
+
+Too much trash. In India we love to live dirty. I am standing in a parking with a beautiful view of snowcapped mountains, and there are like 4 piles of trash, just plastic. Also, there was no power until about 10pm. I was worried my phone won't charge.
+
+Am I just complaining?
+
+On the positive side, life is chill here. There's some pureness to daily chores. Sunday is slow anyway. Some females are even wearing masks, that's unexpected and nice. Mostly men are visible in such places. How do I get tired climbing 2 flights of stairs and people climb dirt trails along the mountains like they're walking in a park.
+
+![I love clicking my own pictures :)](/assets/pic2.jpg "I love clicking my own pictures :)")
+
+Day 4: Beautiful route. And proud to be awake and off so early.!!!
+
+I was so confused about what route to take from here. Afraid tbh. Maybe I'm just addicted to internet. Definitely one of the reasons. After checking the map a thousand times, I felt it won't be so difficult. Plus, I need to maintain my image among other overlander travelers.
+
+Anyway I am in this small village called Darcha. Slightly off the main route. Such peace and calm here, nice people, especially in my homestay. Simple and pure life. La Dolce Vita.
+
+Tomorrow I'm off to Zanskar. Would be lovely. But, you know, let's accept, not expect.
+
+P﻿S: I don't like the other bikers. Not a surprise obviously. Idiot Hooligans on the Leh highway.\
 \
-A lot of police & army checkpoints. Normal for the region obviously, but a surprise for me. Nice people everytime (except that ass at Pong dam.)\
-PS: Kishtewaar is a dirty little town. Oh god why did I go there. I didn't even want to eat anywhere, just looked so bad.\
-\
-\
-\
-\
-\
-Day 3\
-To Killar. Started at 6.30 am! Wowwww\
-This is why I came here. Beautiful scenery and good off roading. Nothing too difficult, even buses and local cars pass here, nonetheless very exciting.\
-\
-Killar is... Desolate? Small empty town high up the mountains. In the day was too hot , and the sun is strong here. Everything's closed. No fuel stations up here. (Reminds me of Bolivia)\
-Beautiful mountains. Too much trash. In India we love to live dirty. I am standing in a parking with a beautiful view of snowcapped mountains, and there are like 4 piles of trash, just plastic. Also, there was no power until about 10pm. I was worried my phone won't charge.\
-\
-Am I just complaining?\
-\
-On the positive side, life is chill here. There's some pureness to daily chores. Sunday is slow anyway. Some females are even wearing masks, that's unexpected and nice. Mostly men are visible in such places. How do I get tired climbing 2 flights of stairs and people climb dirt trails along the mountains like they're walking in a park.\
-\
-\
-\
-Day 4\
-Beautiful route. And proud to be awake and off so early.!!!\
-I was so confused about what route to take from here. Afraid tbh. Maybe I'm just addicted to internet. Definitely one of the reasons. After checking the map a thousand times, I feel it won't be so difficult. Plus, I need to maintain my image among other overlander travelers.\
-\
-I don't like the other bikers. Not a surprise obviously. Idiots.\
-\
-Anyway I am in this small village called Darcha. Slightly off the main route. Such peace and calm here, nice people, especially in my homestay. Simple and pure life. La Dolce Vita.\
-Tomorrow I'm off to Zanskar. Would be lovely.\
-But, you know, let's accept, not expect.\
-\
-\
-\
-\
-Day 5\
-Perseverance\
-This route was difficult. The bike couldn't climb at all. Didn't adjust my carbs 😂 lesson learnt or not?\
-Steep slopes and the brakes are not in the best condition either. Some parts were legitimately scary. How many times did i want to just turn around. Glad I didn't. Persevere. Resist. Adjust.\
-\
-Beautiful is to put it mildly. Just wowwww\
-Glad I did it now because 2 years later there would be a highway here, probably full of bikers. They're even planning a tunnel under the highest pass (16,500 ft.)\
-Privileged to be here.\
-Such nice people in this homestay, i might stay a day longer. Let's see. The father is a well read man, nice conversations with him.\
-Missed my usual yoga-brush routine yesterday, today will be different.\
-Also, no matter how much i despise these other bikers, it's nice to see the passion for off roading in India.\
-\
+D﻿ay 5 was all about perseverance. This route was difficult. The bike couldn't climb at all. Didn't adjust my carbs 😂 lesson learnt, or not? Steep slopes and the brakes were not in the best condition either. Some routes were legitimately scary. How many times did I want to just turn around. Glad I didn't. High mountain pass, followed by a steep decent (would be difficult on my way back), then turned into a wide open track along the canal. Some Yaks, some vehicles, some labourers building the roads, but mostly just vast emptiness.
+
+![I later found out that this mountain pass is called Shingo La, and goes up to 5,091m.](/assets/pic3.jpg "I later found out that this mountain pass is called Shingo La, and goes up to 5,091m.")
+
+P﻿adum is amazing too. Beautiful is to put it mildly. Just wowwww!!!!!!!
+
+Glad I came here now, because 2 years later there would be a highway here, probably full of bikers. They're even planning a tunnel under the highest pass (16,500 ft.)
+
 \
 \
 \
