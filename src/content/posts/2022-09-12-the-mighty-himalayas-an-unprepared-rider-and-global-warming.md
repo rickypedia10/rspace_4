@@ -43,14 +43,8 @@ Day 5 was all about perseverance. This route was difficult. The bike couldn't cl
 
 ![I later found out that this mountain pass is called Shingo La, and goes up to 5,091m.](/assets/pic3.jpg "I later found out that this mountain pass is called Shingo La, and goes up to 5,091m.")
 
-P﻿adum is amazing too. Beautiful is to put it mildly. Just wowwww!!!!!!!
+P﻿adum is amazing too. Beautiful is to put it mildly. Just wowwww!!!!!!! Glad I came here now, because 2 years later there would be a highway here, probably full of bikers. They're even planning a tunnel under the highest pass (16,500 ft.)
 
-Glad I came here now, because 2 years later there would be a highway here, probably full of bikers. They're even planning a tunnel under the highest pass (16,500 ft.)
-
-\
-\
-\
-\
 Day 6 & 7, I did some day rides near Padum. Long days of riding. Really hot. This is a full-on desert in the mountains. So dry and the sun was scorching. Add to that the constant dust and dirt of construction vehicles. I can't even calculate how much dirt I have inhaled today. Also, the glacier that I visited was ok. Not mesmerising. I guess the ice is melting. Meh. Atleast the bike worked good today.
 
 W﻿ell, tried to climb another high steep pass the next day, and the bike was not upto it at all. Yes, Carburetor tech is too old for these routes.
