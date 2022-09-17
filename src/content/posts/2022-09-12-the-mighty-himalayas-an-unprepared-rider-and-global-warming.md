@@ -6,15 +6,11 @@ date: 2022-09-07 11:18
 description: himalayas, travel, motorcycle, adventure
 featuredImage: /assets/20220628_090014~2.jpg
 ---
-The butterflies in my stomach when I left were crazy. I was so nervous I was looking for (and did find) excuses not to leave the comfort of home. Boy am I glad that I did. It's nice. Really nice. Riding on the highway in the plains felt boring. But once I reached the mountains, it was fun.\
-\
-Thanks to some recommendations from fellow ADVers down south!\
-I went upto Salooni and then turned towards J&K. Really nice route and finally found some off road that I was looking for. Being so densely populated, plus the army presence, most roads are well developed. Finding off road routes is much more difficult in India than I could have imagined. I was expecting more, but traveling is about acceptance, not expectations.
+The butterflies in my stomach when I left were crazy. I was so nervous I was looking for (and did find) excuses not to leave the comfort of home. Boy am I glad that I did. It's nice. Really nice. Riding on the highway in the plains felt boring. But once I reached the mountains, it was fun.
 
-![Salooni - Kishtewar, J&K](/assets/pic1.jpg "Salooni - Kishtewar, J&K")
+Thanks to some recommendations from fellow ADVers down south! I went upto Salooni and then turned towards J&K. Really nice route and finally found some off road that I was looking for. Being so densely populated, plus the army presence, most roads are well developed. Finding off road routes is much more difficult in India than I could have imagined. I was expecting more, but traveling is about acceptance, not expectations.
 
-\
-Some views reminded me of similar locations in Peru and Bolivia.
+![Salooni - Kishtewar, J&K, Some views reminded me of similar locations in Peru and Bolivia.](/assets/pic1.jpg "Salooni - Kishtewar, J&K, Some views reminded me of similar locations in Peru and Bolivia.")
 
 Day 3, I rode to Killar. Started at 6.30 am! (Early morning rides are THE BEST!)\
 This is why I came here. Beautiful scenery and good off roading. Nothing too difficult, even buses and local cars pass here, nonetheless very exciting.
@@ -31,14 +27,10 @@ On the positive side, life is chill here. There's some pureness to daily chores.
 
 Day 4: Beautiful route. And proud to be awake and off so early.!!!
 
-I was so confused about what route to take from here. Afraid tbh. Maybe I'm just addicted to internet. Definitely one of the reasons. After checking the map a thousand times, I felt it won't be so difficult. Plus, I need to maintain my image among other overlander travelers.
+I was so confused about what route to take from here. Afraid tbh. Maybe I'm just addicted to internet. Definitely one of the reasons. After checking the map a thousand times, I felt it won't be so difficult. Plus, I need to maintain my image among other overlander travelers. Anyway I am in this small village called Darcha. Slightly off the main route. Such peace and calm here, nice people, especially in my homestay. Simple and pure life. La Dolce Vita.
 
-Anyway I am in this small village called Darcha. Slightly off the main route. Such peace and calm here, nice people, especially in my homestay. Simple and pure life. La Dolce Vita.
+P﻿S: I don't like the other bikers. Not a surprise obviously. Idiot Hooligans on the Leh highway.
 
-Tomorrow I'm off to Zanskar. Would be lovely. But, you know, let's accept, not expect.
-
-P﻿S: I don't like the other bikers. Not a surprise obviously. Idiot Hooligans on the Leh highway.\
-\
 Day 5 was all about perseverance. This route was difficult. The bike couldn't climb at all. Didn't adjust my carbs 😂 lesson learnt, or not? Steep slopes and the brakes were not in the best condition either. Some routes were legitimately scary. How many times did I want to just turn around. Glad I didn't. High mountain pass, followed by a steep decent (would be difficult on my way back), then turned into a wide open track along the canal. Some Yaks, some vehicles, some laborers building the roads, but mostly just vast emptiness.
 
 ![I later found out that this mountain pass is called Shingo La, and goes up to 5,091m.](/assets/pic3.jpg "I later found out that this mountain pass is called Shingo La, and goes up to 5,091m.")
@@ -51,7 +43,7 @@ W﻿ell, tried to climb another high steep pass the next day, and the bike was n
 
 ![That lamb momo soup <3](/assets/pic4.jpg "That lamb momo soup <3")
 
-Day 8: If you're not armed well, the Himalayas will chew you up and spit you out. And I was armed with a blunt knife against an army with snipers. My overconfidence lead me to this route, and neither me nor my bike were fully ready for what was to happen. Left my hotel at 5:30am. Morning ride and climbs were okayish. Then came the climbs at Cha, which I failed at. Had some truckers push the bike up, and put the luggage in a Thar. Helpful people!!!!!
+Day 8: If you're not armed well, the Himalayas will chew you up and spit you out. My overconfidence lead me to this route, and neither me nor my bike were fully ready for what was to happen. Left Padum at 5:30am. Morning ride and climbs were okayish. Then came the climbs at Cha, which I failed at. Had some truckers push the bike up, and put the luggage in a Thar. Helpful people!!!!!
 
 This eased the ride a lot. But the heatwave played havoc to my route. Snow from the mountaintops started melting and almost flooded the valley below, creating deep water crossings on the soft terrain. The first crazy one, where a lot of other people coming the other way were stuck, was 2 stream, both knee deep with freezing water. Took me 1 hour to somehow get to the other side with 4 people helping me. Again, Helpful people!!!!!
 
@@ -67,4 +59,4 @@ It's that truck from the morning!!!!!! It's far away, but fills me with confiden
 
 The climb up the narrow pass in the truck was so so scary. Felt like it could topple anytime on the bumpy road and I would fall down the hill. Add to that somehow trying to hold the bike up while standing behind in the truck. Next hours hours were nerve wracking but we finally reached Keylong, where they dropped me off and I got the bike repaired. Wasn't much wrong except the clutch that expanded due to heat and needed a simple readjust, and some oil too. (Shame on my engineering degree.)
 
-Took my last filling up of lamb momos in the night, and 6am the next morning I was on my way home. Good for me, because the official monsoon rainfall started at 4pm the same day.
+Took my last filling up of lamb momos in the night, and 6am the next morning I was on my way home. Good for me, because the official monsoon rainfall started at 4pm the same day, just as I reached home.
