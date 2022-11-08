@@ -1,7 +1,7 @@
 ---
 template: blog-post
 title: NEWS! New Launch! Sunday Morning Motorcycle Travel Newsletter!
-slug: sunday-newsletter-motorcycle
+slug: blog/sunday-newsletter-motorcycle
 date: 2022-08-07 19:46
 description: motorcycle, travel, newsletter
 featuredImage: /assets/newsletter.jpg
