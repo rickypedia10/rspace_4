@@ -1,7 +1,7 @@
 ---
 template: blog-post
 title: The Mighty Himalayas, an Unprepared Rider and Global Warming
-slug: himalayas
+slug: blog/himalayas
 date: 2022-09-07 11:18
 description: himalayas, travel, motorcycle, adventure
 featuredImage: /assets/20220628_090014~2.jpg
