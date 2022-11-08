@@ -4,7 +4,7 @@ title: NEWS! New Launch! Sunday Morning Motorcycle Travel Newsletter!
 slug: sunday-newsletter-motorcycle
 date: 2022-08-07 19:46
 description: motorcycle, travel, newsletter
-featuredImage: /assets/newsletter-scr.png
+featuredImage: /assets/newsletter.jpg
 ---
 I scour the deep depths of Travel-internet so you do not have to! Sit back and enjoy my weekly favourite articles, news, reviews, blog posts, videos, social media posts, and much more!
 
