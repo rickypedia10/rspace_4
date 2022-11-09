@@ -4,7 +4,7 @@ title: The Mighty Himalayas, an Unprepared Rider and Global Warming
 slug: blog/himalayas
 date: 2022-09-07 11:18
 description: himalayas, travel, motorcycle, adventure
-featuredImage: /assets/20220628_090014~2.jpg
+featuredImage: https://live.staticflickr.com/65535/52487907294_1311be7583_b.jpg
 ---
 The butterflies in my stomach when I left were crazy. I was so nervous I was looking for (and did find) excuses not to leave the comfort of home. Boy am I glad that I did. It's nice. Really nice. Riding on the highway in the plains felt boring. But once I reached the mountains, it was fun.
 
