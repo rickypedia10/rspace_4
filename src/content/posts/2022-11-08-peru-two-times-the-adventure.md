@@ -19,8 +19,12 @@ After a month of relaxing (and working) in Cusco, with a visit to Machu Picchu, 
 As I continued north, I passed through some amazing places like Huaraz (Huascaran National park), Pallasca, Santiago de Chuco, Huamachuco, Cajamarca, and then onto Chachapoyas. Peruvian Andes have something mystic about them, rising and falling unexpectedly, the weather always unpredictable, roads and dirt tracks in such terrain almost geographically impossible. Thankfully, this makes the interior regions difficult to live in and visit for humans, keeping them pristine and beautiful.\
 \
 Traveling from Chachapoyas down toward the beach, the bike's electronics decided to switch off.\
-Luckily I was traveling downhill and slowly traveled down for the next 30kms to the next town. A truck took me the next 125kms to Jaén where the mechanic repaired what I never understood the problem was. This was the last adventure as I continued to the coast for 3 days of laying on a hammock on the beach before entering Ecuador.\
-\
+Luckily I was traveling downhill and slowly traveled down for the next 30kms to the next town. A truck took me the next 125kms to Jaén where the mechanic repaired what I never understood the problem was. This was the last adventure as I continued to the coast for 3 days of laying on a hammock on the beach before entering Ecuador.
+
+![](https://live.staticflickr.com/65535/52500008314_3b3807a2ec_o.jpg "Contemplating life..")
+
+![one more Ceviche](https://live.staticflickr.com/65535/52499238342_4e96a8d6a8_o.jpg "one more Ceviche")
+
 \
 \
 I knew I would be back in Perú someday, I just didn't know it would be within 6 months. This time I entered from Ecuador via Vilcabamba, and I planned to have even more adventures (Thanks mak for the inspiration). The journey began obviously in Jaén as I got a much-needed TLC for the bike from my trusted mechanic.\
