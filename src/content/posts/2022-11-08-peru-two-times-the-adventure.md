@@ -2,7 +2,7 @@
 template: blog-post
 title: Peru - Two times the Adventure
 slug: blog/peru
-date: 2022-11-08 13:52
+date: 2022-11-14 12:34
 description: peru, adventure, motorcycle
 featuredImage: /assets/20190630_150430.jpg
 ---
@@ -31,7 +31,11 @@ I knew I would be back in Perú someday, I just didn't know it would be within 6
 \
 Perú kept throwing new surprises on even the routes I had already been to, and I kept absorbing and enjoying them, knowing that THIS is why I came to South America!\
 \
-This time, I visited new places like Caraz, San Marcos via the Punta Olimpica tunnel, Huanuco, Cerro de Pasco, Huancavelica, Ayacucho, and Quillabamba, before entering finally into Bolivia.\
+This time, I visited new places like Caraz, San Marcos via the Punta Olimpica tunnel, Huanuco, Cerro de Pasco, Huancavelica, Ayacucho, and Quillabamba, before entering finally into Bolivia.
+
+![If I had to sum up Perú in 1 pic..](https://live.staticflickr.com/65535/52499237997_19675fc16c_o.jpg "If I had to sum up Perú in 1 pic..")
+
+\
 \
 Thankfully there was no snow this time, but some memorable experiences like the Bull-fighting festival, high mountain passes and vast mining regions, ancient Incan ruins, and much more.\
 \
