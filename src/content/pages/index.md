@@ -3,7 +3,7 @@ template: index-page
 slug: /
 title: Aneesh Mittal
 tagline: Designer
-featuredImage: /assets/home_face.jpg
+featuredImage: /assets/img_20230401_192757.jpg
 cta:
   ctaText: Know More..
   ctaLink: /about
